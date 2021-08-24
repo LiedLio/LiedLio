@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @LiedLio
+- 👀 I’m interested in video games 🎮
+- 🌱 I’m currently learning how to script 💻
+- 📫 How to reach me https://www.instagram.com/LiedLio/
